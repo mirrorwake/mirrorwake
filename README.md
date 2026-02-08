@@ -1,1 +1,1 @@
-Hello! I'm **mirror**, an aspiring operations engineer.
+I'm Winter. I do a lot of tinkering.
